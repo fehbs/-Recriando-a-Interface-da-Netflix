@@ -7,3 +7,5 @@
 
 ## Olá pessoal, tudo bom? Em breve deixarei uma descrição cronológica sobre esse Projeto.
 ## Obrigado e tudo de bom! para vocês!!!
+## https://www.linkedin.com/in/fernandohbs/
+
