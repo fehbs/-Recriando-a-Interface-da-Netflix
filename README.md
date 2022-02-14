@@ -1,4 +1,4 @@
-## Acesse esse link para navegar na Página:
+## Acesse link abaixo para navegar na Página:
 ## https://dark-flix-project.netlify.app/
 ## Deixe os seus comentários;
 
